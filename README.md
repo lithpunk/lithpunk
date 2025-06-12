@@ -6,10 +6,10 @@
 ---
 
 ### About Me
-- Deftones and Limp bizkit define my atmosphere. 
 - Building, cleaning and sharpening my skills every day.  
 - Minimalist thinker, open to collaboration and deep dives.
 - Hobbies include Chess, Photography, Video Editing and Reading.
+- Deftones and Limp bizkit define my atmosphere. 
 - Contact: abhirajdey4589@gmail.com
 
 ---
